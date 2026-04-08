@@ -1,1 +1,1 @@
-# Mine-imator-
+# Mine-imator-Thai-language
